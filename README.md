@@ -1,1 +1,1 @@
- Hi, my name is Sanjivkumar Patel. I'm deeply interested in analyzing data and programming mobile web apps. I'm looking to collaborate on programming code and learn more while gaining keen knowledge in data analytics. I'm open to new opportunities and would love to contribute to your project. My email is the best way to reach me.
+ Hi, my name is Sanjivkumar Patel, Interested in developing mobile apps. I'm looking to program and gain knowledge in data analytics. I am open to new opportunities and would love to contribute.
